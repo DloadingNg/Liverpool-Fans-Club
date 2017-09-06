@@ -1,5 +1,8 @@
-# hello-world
+LFC LINE UP 4-3-3
 
-Hello guys!
 
-Nichlos here! one of the LFC fans! #YNWA
+Salah, Firmino, Mane
+
+Gini, Can, Ox
+
+Robertson, Matip, Lauren, Arnold
